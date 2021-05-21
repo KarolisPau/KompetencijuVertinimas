@@ -1,0 +1,1 @@
+<a title="YouTube, Public domain, via Wikimedia Commons" href="https://commons.wikimedia.org/wiki/File:Logo_of_YouTube_(2015-2017).svg"><img width="64" alt="Logo of YouTube (2015-2017)" src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Logo_of_YouTube_%282015-2017%29.svg/256px-Logo_of_YouTube_%282015-2017%29.svg.png"></a>

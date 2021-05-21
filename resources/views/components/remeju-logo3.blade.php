@@ -1,0 +1,1 @@
+<a title="reddit.com, Public domain, via Wikimedia Commons" href="https://commons.wikimedia.org/wiki/File:Reddit_logo.svg"><img width="64" alt="Reddit logo" src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Reddit_logo.svg/512px-Reddit_logo.svg.png"></a>
